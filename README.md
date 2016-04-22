@@ -12,7 +12,7 @@ A person's essential being that distinguishes them from others, especially consi
 ---
 
 
-***The Mind** Well shit, I just got beaten at chess. I thought I was good.  
+_**The Mind** Well shit, I just got beaten at chess. I thought I was good.  
 **The Self**  I'm afraid I'm not good enough. This is bad. I feel bad. I need to get better.  
 **The Mind**  The other guy was pro, though. He was way too good for me.  
 **The Mind**  He seems to be popular in the community as well, let me check him out online.  
@@ -21,7 +21,7 @@ A person's essential being that distinguishes them from others, especially consi
 **The Mind**  He runs his own two startups as well! Damn, that's cool, he's living the life.  
 **The Mind**  Pays to go to ivy league, I guess.  
 **The Self**  I'm afraid I'm not good enough. This is bad. I feel bad. I need to get better.  
-**The Mind**  Dinner plans?*
+**The Mind**  Dinner plans?_
 
 The Mind always tries its best to bury the Self.
 
@@ -160,8 +160,8 @@ Work from bottom-to-top, addressing your Self first before you bring your mind i
 
 ### On courage and compassion.
 
-***Troy Barnes** Let me ask you something. People have been clowning me about this jacket since I got here but if I take it off to make them happy, that just makes me weak. Right?  
-**Jeff Winger** Listen, it doesn’t matter. You lose the jacket to please them; you keep it to piss them off. Either way, it’s for them. That’s what’s weak.*
+_**Troy Barnes** Let me ask you something. People have been clowning me about this jacket since I got here but if I take it off to make them happy, that just makes me weak. Right?  
+**Jeff Winger** Listen, it doesn’t matter. You lose the jacket to please them; you keep it to piss them off. Either way, it’s for them. That’s what’s weak._
 
 Not seeking from others is halfway to couragetown. Purpose is the rest of the way. Your Self already has both, because to your Self, everything's just about you and your purpose. Even when your Self is under tension, its fear is about internal self-improvement, not about external things. The mind has fears about external things. It likes to brew them, in fact. By addressing your Self before your mind, you've already eliminated the possibility of your mind brewing shit up.
 
