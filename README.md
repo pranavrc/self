@@ -150,7 +150,7 @@ There is nothing to fix. Period. Your Self is already faultless, and the weaknes
 
 ### Lack of awareness is the only real weakness.
  
-The only objective weakness is ignorance or the lack of awareness. Being blind to your purpose jails your mind and body; self-awareness frees them. Let mind and body play out their desires, insecurities and weaknesses, and fester in the trivialities of daily life, while you filter all your emotions down to your Self - compressing it, setting its survival gears into motion, letting it mould and chisel you.
+The only objective weakness is ignorance or the lack of awareness. Being blind to your purpose jails your mind and body; self-awareness frees them. Let mind and body play out their desires, insecurities and weaknesses, and fester in the trivialities of daily life, while you filter all your emotions down to your Self - compressing it, setting its survival gears into motion, letting it mould and chisel you. This way, instead of curbing your mind, you get to satiate its desires, while simply having the awareness and ability to reset back to your Self and let it re-establish your purpose at any time.
 
 All your problems are tangible stuff from external life that simply can't get through to your inner reality, and if you trust your Self with the emotions that you experience, your Self will work in tandem with your mind and body to fix them for you.
 
