@@ -63,7 +63,7 @@ Let's say I'm 10, I'm generally happy, but I'm jealous of the rich kid in class.
 
 Now I'm 17, I'm generally happy, but the talented, bright kid in class depresses me. I hang out with friends, have mundane fun for catharsis, and gratify my sadness away. *The world is one happy moment away from being blissful again*.
 
-Now I'm 21, and I've grown fairly resistant to sadness by learning to focus on my upsides and drowning it in self-absorption. Let's say I see a jacked up guy at the gym, which causes woe. I tell myself I'm good at other things and that I'm unique. Or maybe I tell myself that my problems are petty in the larger picture. *The world is the oyster of my rationality*.
+Now I'm 21, and I've grown fairly resistant to sadness by learning to focus on my upsides and drowning it in self-absorption. I run into a jacked athlete at a marathon, and that causes woe. I tell myself I'm good at other things and that I'm unique. Or maybe I tell myself that my problems are petty in the larger picture. *The world is the oyster of my rationality*.
 
 Ironically, though the 10-year old did not have maturity of expression, he had a healthier ego. The 17- and 21-year olds just ran away from their Selves.
 
